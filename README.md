@@ -5,4 +5,3 @@
 
 ##never gonna give you up - varikelm
 
-авыощаовыо, звачееем
